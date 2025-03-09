@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Home<br>👯 I’m looking to collaborate on Sr. Devs<br>🤝 I’m looking for help with Anyone<br>🌱 I’m currently learning other Stacks<br>💬 Ask me about anythong<br>⚡ Fun fact I'm 3rd year college
+🔭 I’m currently working on Home<br>👯 I’m looking to collaborate on Sr. Devs<br>🤝 I’m looking for help with Anyone<br>🌱 I’m currently learning other Stacks<br>💬 Ask me about anything<br>⚡ Fun fact I'm 3rd year college
 
 
 ## 🌐 Socials:
